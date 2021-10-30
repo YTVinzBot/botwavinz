@@ -1,5 +1,9 @@
 // hallo kak pa kabar? baik? alhamdulillah
 // jangan lupa solat 5 waktu ya🙂
+// maap ya di enco we dah kapok 
+// karna tq to d hpus + yt gue d hpus 
+// kalo suka sc buy aja
+// wa 6285875169194
 // kalo ubah sendiri eror jangan nanges🙂
 // ubah di setting.js aja gue ingetin
 //note tq to ma yt gue jngn hapus lah gak bisa harga amat lu 
